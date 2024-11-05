@@ -18,4 +18,4 @@ Focused on delivering high-quality and efficient projects. Experienced in leadin
 **Contact:**
 
 - **Email:** [mhalikosen@mhalikosen.com](mailto:mhalikosen@mhalikosen.com)
-- **LinkedIn:** [Your LinkedIn Profile](https://www.linkedin.com/in/mhalikosen/)
+- **LinkedIn:** [My LinkedIn Profile](https://www.linkedin.com/in/mhalikosen/)
